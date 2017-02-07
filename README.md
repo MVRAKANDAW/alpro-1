@@ -7,4 +7,4 @@ Contact : 089656272905 <br>
 Website : www.bhinfinix.com <br>
 
 
-<marquee>Sekolah Tinggi Teknologi Bandung <marquee>
+Sekolah Tinggi Teknologi Bandung
